@@ -1,0 +1,1 @@
+# smartninja_vaje1
